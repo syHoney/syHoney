@@ -1,4 +1,3 @@
 - Hi, I’m syHoney,you can call me Qi Ya.
 - I'm come from Dingxi Gansu China
 - I’m interested in Minecraft Mod
-- No way to reach me :)
